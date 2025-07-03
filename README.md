@@ -35,5 +35,5 @@
 ## 📫 How to Reach Me
 
 - 📧 Email: alijawad@example.com
--
+
 - 🌐 Portfolio: Coming soon!
